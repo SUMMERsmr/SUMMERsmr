@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SUMMER
+- 💎my Discord:https://discord.gg/g6yHMDEhWT
